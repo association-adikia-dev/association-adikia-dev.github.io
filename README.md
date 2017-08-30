@@ -1,1 +1,0 @@
-# association-adikia-dev.github.io
